@@ -1,1 +1,1 @@
-# TinovoA.github.io
+# Tinovox.github.io
